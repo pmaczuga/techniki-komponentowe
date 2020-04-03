@@ -1,0 +1,1 @@
+# techniki-komponentowe
